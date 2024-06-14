@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 💙💙
+### Boas vindas ao meu perfil 💜💜
 Meu nome é Sabrina Fernandes
 
 - Estou estudando na  [Alura](https://www.alura.com.br)
@@ -10,7 +10,7 @@ sabrinafernandes@email.com
 
 @sabrinafernandes
 
-![](https://tenor.com/pt-BR/view/cat-look-cat-look-at-camera-silly-cat-in-a-cage-gif-889392959852579879)
+![](https://media2.giphy.com/media/mlvseq9yvZhba/giphy.gif?cid=6c09b952lvbuxhw9e5u47kbd6znzwz3i1wps1amnlz0j625k&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g)
 
 
 
